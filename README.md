@@ -9,4 +9,4 @@
 
 𝚃𝚑𝚒𝚜 𝚒𝚜 𝚊 𝚛𝚎𝚖𝚒𝚗𝚍𝚎𝚛 𝚝𝚑𝚊𝚝 𝚝𝚑𝚎 𝚊𝚐𝚘𝚗𝚢 𝚠𝚘𝚞𝚕𝚍 𝚜𝚒𝚖𝚙𝚕𝚢 𝚜𝚞𝚋𝚜𝚒𝚍𝚎. 𝚈𝚘𝚞 𝚠𝚒𝚕𝚕 𝚜𝚒𝚖𝚙𝚕𝚢 𝚛𝚎𝚌𝚘𝚐𝚗𝚒𝚣𝚎 𝚘𝚗𝚎 𝚍𝚊𝚢 𝚝𝚑𝚊𝚝 𝚢𝚘𝚞 𝚊𝚛𝚎 𝚗𝚘 𝚕𝚘𝚗𝚐𝚎𝚛 𝚌𝚊𝚛𝚛𝚢𝚒𝚗𝚐 𝚝𝚑𝚊𝚝 𝚛𝚞𝚋𝚋𝚒𝚜𝚑 𝚒𝚗𝚜𝚒𝚍𝚎 𝚘𝚏 𝚢𝚘𝚞, 𝚎𝚟𝚎𝚗 𝚝𝚑𝚘𝚞𝚐𝚑 𝚒𝚝 𝚠𝚒𝚕𝚕 𝚗𝚘𝚝 𝚘𝚌𝚌𝚞𝚛 𝚚𝚞𝚒𝚌𝚔𝚕𝚢 𝚘𝚛 𝚎𝚊𝚜𝚒𝚕𝚢. 𝙰𝚝 𝚕𝚊𝚜𝚝, 𝚢𝚘𝚞 𝚊𝚛𝚎 𝚌𝚕𝚎𝚊𝚗. ☂｡⋆˚☽*ೃ༄♡*
 
-[1989 ALBUM](https://open.spotify.com/embed/album/1o59UpKw81iHR0HPiSkJR0?utm_source=generator)
+[1989 ALBUM](https://open.spotify.com/embed/album/1o59UpKw81iHR0HPiSkJR0?utm_source=generator&theme=0)
